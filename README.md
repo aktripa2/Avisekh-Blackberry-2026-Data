@@ -1,1 +1,0 @@
-# 06.30.2026-Von-Before-Harvesting-Row7-Reflectance-Spectra-of-each-berries
